@@ -10,5 +10,6 @@
 <br><br>
   $\text{\color{#000000}{i usually would tend to try avoid getting into groups or people due to how overwhelming it would get for for me, sorry}}$
   $\text{\color{#000000}{feel free to sign my atabook, if you'd like}}$
-
+<br><br>
+<img src="https://files.catbox.moe/20umyl.png" width="80%" height="80%">
 </p>
