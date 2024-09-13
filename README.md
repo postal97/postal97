@@ -2,9 +2,9 @@
 <img src="https://files.catbox.moe/20umyl.png" width="80%" height="80%">
 <img src="https://files.catbox.moe/o05nek.png"width="90%" height="90%">
 <br>
-  $\text{\color{#c40d00}{16yrs old}}$ <b>♱</b> $\text{\color{#c40d00}{he/him boygirl}}$
+  $\text{\color{#000000}{16}}$ $\text{\color{#c40d00}{yrs old}}$ <b>♱</b> $\text{\color{#c40d00}{he/him}}$ $\text{\color{#000000}{boygirl}}$
 <br><br>
-  $\text{\color{#c40d00}{i suppose i am fine with cuddle + hide, but please ask me beforehand if we are strangers so it wouldn't caught me off guard that much}}$
+  $\text{\color{#000000}{i suppose i am fine with cuddle + hide,}}$ $\text{\color{#c40d00}{but please ask me beforehand if we are strangers so it wouldn't caught me off guard that much}}$
 <br>
-  $\text{\color{#c40d00}{i am horrible at interacting with people, my apologies if i ended up being extremely quiet for most of the time}}$
+  $\text{\color{#000000}{i am horrible at interacting with people, my apologies if i ended up being extremely quiet for most of the time}}$
 </p>
