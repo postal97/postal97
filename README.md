@@ -1,6 +1,7 @@
 <p align="center">
 <img src="https://files.catbox.moe/20umyl.png" width="80%" height="80%">
 <img src="https://files.catbox.moe/o05nek.png"width="90%" height="90%">
-He/him
+<br>
+16yrs old, he/him boygirl
 This is still a WIP I did not plan any of these beforehand
 </p>
