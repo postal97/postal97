@@ -4,10 +4,8 @@
 <br>
   $\text{\color{#000000}{16-17}}$ $\text{\color{#c40d00}{yrs old}}$ <b>♱</b> $\text{\color{#c40d00}{he/him}}$ $\text{\color{#000000}{boygirl}}$
 <br><br>
-  $\text{\color{#000000}{i suppose i am fine with cuddle + hide,}}$ $\text{\color{#c40d00}{but please ask me beforehand if we are strangers so it wouldn't caught me off guard that much}}$
-<br>
   $\text{\color{#000000}{i am more of a reserved type of person and is horrible at interacting with people,}}$
-  <br><br>$\text{\color{#c40d00}{ for most of the time i am unable to function that well without my friend,}}$
+  <br>$\text{\color{#c40d00}{ for most of the time i am unable to function that well without my friend,}}$
   $\text{\color{#c40d00}{ if you see me alone i might appear extremely quiet}}$
 <br><br>
   $\text{\color{#c40d00}{i usually would tend to try avoid getting into groups or people due to how overwhelming it would get for for me, sorry}}$
