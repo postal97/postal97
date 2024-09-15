@@ -6,8 +6,9 @@
 <br><br>
   $\text{\color{#000000}{i suppose i am fine with cuddle + hide,}}$ $\text{\color{#c40d00}{but please ask me beforehand if we are strangers so it wouldn't caught me off guard that much}}$
 <br>
-  $\text{\color{#000000}{i am more of a reserved type of person and is horrible at interacting with people, my apologies if i ended up being extremely quiet for most}}$
-  <br>$\text{\color{#000000}{ of the time}}$
+  $\text{\color{#000000}{i am more of a reserved type of person and is horrible at interacting with people,}}$
+  <br>$\text{\color{#000000}{ for most of the time i am unable to function that well without my friend,}}$
+  $\text{\color{#000000}{ if you see me alone i might appear extremely quiet}}$
 <br><br>
   $\text{\color{#000000}{i usually would tend to try avoid getting into groups or people due to how overwhelming it would get for for me, sorry}}$
   $\text{\color{#000000}{feel free to ask for my discord or sign my atabook, if you'd like}}$
