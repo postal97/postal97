@@ -8,7 +8,7 @@
 <br><br>
   $\text{\color{#000000}{i am horrible at interacting with people,}}$
   $\text{\color{#c40d00}{ for most of the time i am unable to function that well without my friend,}}$
-  $\text{\color{#000000}{ if you see me alone i might appear extremely quiet. feel free to start a conversation with me, i don't bite}}$
+  $\text{\color{#000000}{ if you see me alone i might appear extremely quiet}}$
 <br><br>
   $\text{\color{#c40d00}{i usually would tend to try avoid getting into groups or people due to how overwhelming it would get for for me, sorry}}$
   $\text{\color{#000000}{please let me know if i did something wrong, i am not usually aware whether if it's wrong or not}}$
