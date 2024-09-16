@@ -10,9 +10,9 @@
   for most of the time i am unable to function that well without my friend,
   if you see me alone i might appear extremely quiet. 
   i usually would tend to try avoid getting into groups or people due to how overwhelming it would get for for me, sorry
-  <br>
-  please let me know if i did something wrong, i am not usually aware whether if it's wrong or not
   <br><br>
+  please let me know if i did something wrong, i am not usually aware whether if it's wrong or not
+  <br>
   please sign my atabook if you'd like B)
 <br><br>
 <img src="https://files.catbox.moe/20umyl.png" width="80%" height="80%">
